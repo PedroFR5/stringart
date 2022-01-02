@@ -1,3 +1,3 @@
-Faça suas partes com linhas
+Faça suas artes com linhas
 
 Link: https://cwstringart.ga/
